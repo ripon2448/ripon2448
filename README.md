@@ -1,4 +1,4 @@
-![I am Rezaul Karim](https://github.com/rezaul360/rezaul360/blob/60f3a5c85bb23ea4f22f4ccee13716f779b2055b/Rezaul360.png)
+![I am Rezaul Karim](https://github.com/ripon2448/ripon2448/blob/f9abf45ba1f48d5b13e05710de95e8964cfe2c5e/Naogaon%20post.jpg)
 
 
 <h1 align="center">Hi 👋, I'm Rezaul Karim</h1>
